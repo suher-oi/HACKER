@@ -1,2 +1,2 @@
 # HACKER
-gunakan dengan bijak
+
